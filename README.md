@@ -1,0 +1,2 @@
+# privacypolicy
+jumbl privacy policy
